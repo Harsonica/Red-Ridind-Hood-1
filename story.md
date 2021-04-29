@@ -11,3 +11,18 @@ When the basket was ready, the little girl put on her red cloak and kissed her m
 "Don't worry, mommy," said Little Red Riding Hood, "I'll be careful."
 
 Little Red Riding Hood StoryBut when Little Red Riding Hood noticed some lovely flowers in the woods, she forgot her promise to her mother.  She picked a few, watched the butterflies flit about for awhile, listened to the frogs croaking and then picked a few more. 
+Little Red Riding Hood was enjoying the warm summer day so much, that she didn't notice a dark shadow approaching out of the forest behind her...
+
+Suddenly, the wolf appeared beside her.
+
+"What are you doing out here, little girl?" the wolf asked in a voice as friendly as he could muster.
+
+"I'm on my way to see my Grandma who lives through the forest, near the brook,"  Little Red Riding Hood replied.
+
+Then she realized how late she was and quickly excused herself, rushing down the path to her Grandma's house. 
+
+The wolf, in the meantime, took a shortcut...
+
+The wolf, a little out of breath from running, arrived at Grandma's and knocked lightly at the door.
+
+"Oh thank goodness dear!  Come in, come in!  I was worried sick that something had happened to you in the forest," said Grandma thinking that the knock was her granddaughter.
